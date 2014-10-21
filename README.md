@@ -1,5 +1,5 @@
 Scrumy
 ======
 
-Blabla
-bliblibli
+C'était moche.
+Point.
